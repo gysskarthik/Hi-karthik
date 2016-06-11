@@ -1,2 +1,2 @@
 # Hi-karthik
-Need to be introduced by other
+This thing provied tips to gain interviews
